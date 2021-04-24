@@ -46,11 +46,28 @@
 ![image](https://user-images.githubusercontent.com/83132372/115967910-cc231d80-a567-11eb-95f1-fa5228c6ff07.png)
 ![image](https://user-images.githubusercontent.com/83132372/115967931-d5ac8580-a567-11eb-9183-2f65130bff95.png)
 ![image](https://user-images.githubusercontent.com/83132372/115967935-d8a77600-a567-11eb-9311-5c32c17d3586.png)
-8. 经过进一步挖掘，大家推断该黑店的运作模式为：通过小奶基（多么可爱啊！）吸引带小孩的游客，通过扫码免费进店的方式，通过朋友圈贩卖动物活体等手段获取非法收益。根据被救助的小奶基为1月龄推断，该店的奶基基本1-2周就得换一批，使用完的奶基都被销毁。
+8. 经过进一步挖掘，大家推断该黑店的运作模式为：通过小奶基（多么可爱啊！）吸引带小孩的游客，通过扫码免费进店的方式，通过朋友圈贩卖动物活体等手段获取非法收益。根据被救助的小奶基为1月龄推断，该店的奶基基本1-2周就得换一批，使用完的奶基都被销毁。通过微信名称的编号（已经到了41，估计不是最靠后的）来看，该黑店作恶肯定非常久了（一个微信号好像最多可以加5000人），不知道有多少小生命就这样被黑店残忍杀害啊！
 <img width="586" alt="image" src="https://user-images.githubusercontent.com/83132372/115968287-be6e9780-a569-11eb-9f56-ecdf03f6f31a.png">
 ![image](https://user-images.githubusercontent.com/83132372/115968293-c595a580-a569-11eb-9334-7d5fd86efa59.png)
 ![image](https://user-images.githubusercontent.com/83132372/115968297-cd554a00-a569-11eb-8326-e2c7f3f94cbe.png)
-![image](https://user-images.githubusercontent.com/83132372/115968297-cd554a00-a569-11eb-8326-e2c7f3f94cbe.png)
-10. 大家纷纷通过自己的力量向相关机构开始投诉该店，主要是12315投诉。
-11. 在此期间，MINI女士将小母基命名为安安，小公基为康康，取安康之意。
+
+9. 大家纷纷通过自己的力量向相关机构开始投诉该店，主要是12315投诉。
+10. 在此期间，MINI女士将小母基命名为安安，小公基为康康，取安康之意。但是由于康康病情更加恶劣，不断尿血呕吐，被宠物医院的医生下达了病危通知书
+<img width="446" alt="image" src="https://user-images.githubusercontent.com/83132372/115968463-b531fa80-a56a-11eb-8f56-aa1b397e620d.png">
+<img width="446" alt="image" src="https://user-images.githubusercontent.com/83132372/115968513-e6122f80-a56a-11eb-8e2f-0f407c32cb8a.png">
+
+11. 现在康康和安安正在在医院接受输液治疗，我们祈祷他们可以安全挺过去，找到对他们好的主人渡过汪生！
+![image](https://user-images.githubusercontent.com/83132372/115968734-dba46580-a56b-11eb-9083-b76a781ead61.png)
+
+12. 我们会进一步更新事件后续动态
+
+#### 致谢
+1. 感谢家住附近的MINI女士第一时间前往现场救助小奶基
+2. 感谢家住很远的晶晶女士第一时间驱车前往现场救助小奶基
+3. 感谢柯基群里面基友关心事件的进展和群策群力，特别感谢为了救助奶基们慷慨解囊众筹资金的基友们！
+4. 感谢每一位在救助康康和安安付出努力和精力的朋友
+5. 感谢每一位在打击黑店过程中付出努力和精力的朋友
+
+#### 说明
+上述内容为时间紧迫所做，肯定有错漏遗失等情况，热切的希望大家进一步补充和修改
 
