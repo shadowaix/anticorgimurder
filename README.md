@@ -30,10 +30,17 @@
 4. 由于奶基脖子上还有铃铛且耳朵上还被帮助了立耳，大家开始担心是否是被主人遗失
 ![image](https://user-images.githubusercontent.com/83132372/115967289-684b2580-a564-11eb-9297-cffd6ec7f068.png)
 5. 为了确保奶基状态，志愿者MINI女士将奶基带到了医院进行检查，晶晶女士后续也赶到了医院。经过检查，浅色小奶基（母）为中度细小，深色小奶基（公）为重度细小，且严重脱水。在此期间，MINI女士在动物医院预充值了3000元人民币用于奶基们的治疗。
-![image](https://user-images.githubusercontent.com/83132372/115967437-38e8e880-a565-11eb-8e74-41a92b447434.png)
+![image](https://user-images.githubusercontent.com/83132372/115967822-5454f300-a567-11eb-96b6-3e33c9455d7c.png)
 6. 本来以为事情该告一段落，但是群里的基友忽然指出自己路过南锣鼓巷，发现一家宠物店里面的幼崽们有和刚才获得救助的幼崽相同的铃铛，且有相同的绑耳朵方式，引起了大家高度关注。
 <img width="446" alt="image" src="https://user-images.githubusercontent.com/83132372/115967628-45ba0c00-a566-11eb-8fab-ded59cd6f68f.png">
 <img width="1042" alt="image" src="https://user-images.githubusercontent.com/83132372/115967658-7306ba00-a566-11eb-8694-cb0514b86697.png">
 <img width="207" alt="image" src="https://user-images.githubusercontent.com/83132372/115967677-8154d600-a566-11eb-91d0-214150f58669.png">
-7. 
+![image](https://user-images.githubusercontent.com/83132372/115967887-b57cc680-a567-11eb-96de-524924a299d9.png)
+7. 经过大家反复比对，初步推断被救助的小奶基是被该店利用完成后所抛弃，该行为等同于谋杀！也发现了在大众点评该店差评如潮。
+![image](https://user-images.githubusercontent.com/83132372/115967910-cc231d80-a567-11eb-95f1-fa5228c6ff07.png)
+![image](https://user-images.githubusercontent.com/83132372/115967931-d5ac8580-a567-11eb-9183-2f65130bff95.png)
+![image](https://user-images.githubusercontent.com/83132372/115967935-d8a77600-a567-11eb-9311-5c32c17d3586.png)
+
+
+8. 
 
