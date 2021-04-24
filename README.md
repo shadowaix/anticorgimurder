@@ -6,10 +6,13 @@
 ## 我们需要你的帮助
 1. 提供更多的真实信息去完善每个保护行动
 2. 将我们的文案翻译成各种不同的语言传播到世界各地
-3. 对现有的内容的格式、描述、措辞进行优化和修改
+3. 对现有的内容的格式、描述、措辞进行优化和修改以及补充
 4. 发起新的柯基保护行动
 5. 在各种社交渠道如：微博、抖音、微信朋友圈、Twitter、Facebook宣传我们的项目，引起更多人对的注意
 6. 我们下一步将会构建独立的域名主页，希望有任何设计、开发以及其它才能的人参与进来。
+7. 提供行为指导或者法律援助
+8. 登记领养被救助柯基的意向
+9. 其它任何您觉得对我们可以提供帮助的举措或手段
 
 ## 当前行动
 
@@ -37,11 +40,17 @@
 <img width="207" alt="image" src="https://user-images.githubusercontent.com/83132372/115967677-8154d600-a566-11eb-91d0-214150f58669.png">
 
 ![image](https://user-images.githubusercontent.com/83132372/115967887-b57cc680-a567-11eb-96de-524924a299d9.png)
-7. 经过大家反复比对，初步推断被救助的小奶基是被该店利用完成后所抛弃，该行为等同于谋杀！也发现了在大众点评该店差评如潮。
+
+7. 经过大家反复比对，初步推断被救助的小奶基是被该店利用完成后所抛弃，该行为等同于谋杀！也发现了在大众点评该店差评如潮。救助地点距离该店位置图如下：
+
 ![image](https://user-images.githubusercontent.com/83132372/115967910-cc231d80-a567-11eb-95f1-fa5228c6ff07.png)
 ![image](https://user-images.githubusercontent.com/83132372/115967931-d5ac8580-a567-11eb-9183-2f65130bff95.png)
 ![image](https://user-images.githubusercontent.com/83132372/115967935-d8a77600-a567-11eb-9311-5c32c17d3586.png)
-
-
-8. 
+8. 经过进一步挖掘，大家推断该黑店的运作模式为：通过小奶基（多么可爱啊！）吸引带小孩的游客，通过扫码免费进店的方式，通过朋友圈贩卖动物活体等手段获取非法收益。根据被救助的小奶基为1月龄推断，该店的奶基基本1-2周就得换一批，使用完的奶基都被销毁。
+<img width="586" alt="image" src="https://user-images.githubusercontent.com/83132372/115968287-be6e9780-a569-11eb-9f56-ecdf03f6f31a.png">
+![image](https://user-images.githubusercontent.com/83132372/115968293-c595a580-a569-11eb-9334-7d5fd86efa59.png)
+![image](https://user-images.githubusercontent.com/83132372/115968297-cd554a00-a569-11eb-8326-e2c7f3f94cbe.png)
+![image](https://user-images.githubusercontent.com/83132372/115968297-cd554a00-a569-11eb-8326-e2c7f3f94cbe.png)
+10. 大家纷纷通过自己的力量向相关机构开始投诉该店，主要是12315投诉。
+11. 在此期间，MINI女士将小母基命名为安安，小公基为康康，取安康之意。
 
