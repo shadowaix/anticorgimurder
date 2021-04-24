@@ -46,6 +46,7 @@
 ![image](https://user-images.githubusercontent.com/83132372/115967910-cc231d80-a567-11eb-95f1-fa5228c6ff07.png)
 ![image](https://user-images.githubusercontent.com/83132372/115967931-d5ac8580-a567-11eb-9183-2f65130bff95.png)
 ![image](https://user-images.githubusercontent.com/83132372/115967935-d8a77600-a567-11eb-9311-5c32c17d3586.png)
+
 8. 经过进一步挖掘，大家推断该黑店的运作模式为：通过小奶基（多么可爱啊！）吸引带小孩的游客，通过扫码免费进店的方式，通过朋友圈贩卖动物活体等手段获取非法收益。根据被救助的小奶基为1月龄推断，该店的奶基基本1-2周就得换一批，使用完的奶基都被销毁。通过微信名称的编号（已经到了41，估计不是最靠后的）来看，该黑店作恶肯定非常久了（一个微信号好像最多可以加5000人），不知道有多少小生命就这样被黑店残忍杀害啊！
 <img width="586" alt="image" src="https://user-images.githubusercontent.com/83132372/115968287-be6e9780-a569-11eb-9f56-ecdf03f6f31a.png">
 ![image](https://user-images.githubusercontent.com/83132372/115968293-c595a580-a569-11eb-9334-7d5fd86efa59.png)
