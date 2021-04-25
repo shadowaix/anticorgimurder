@@ -55,6 +55,14 @@ Issue和PR是Github社区重要的协作方式，issue可以理解为「我有�
 #### 邮件
 或者直接发送邮件到anticorgimurder@gmail.com，由我们来将邮件转化为issue
 
+#### 微信群
+
+经过MINI女士同意，将微信群二维码贴在这里。
+<img width="352" alt="image" src="https://user-images.githubusercontent.com/83132372/115982164-8304b500-a5cb-11eb-93a1-b34adcd686ea.png">
+
+如果无法加入该群请通过该issue解决：https://github.com/atcmorg/anticorgimurder/issues/2
+
+
 ## 当前行动
 
 ### 反北京南锣鼓巷黑店谋杀行动
