@@ -32,6 +32,7 @@
 - 帮助我们搭建独立的社区主页：https://github.com/atcmorg/anticorgimurder/issues/5
 
 ### 如何参与
+**[立即加入AntiCorgiMurder Slack频道参与社区讨论](https://join.slack.com/t/newworkspace-frg8194/shared_invite/zt-ptn1g0bk-lLaxMrC75NS1tK25FHtlFA)**
 
 **想参与社区的人可以请直接提交Issue或PR(Pull Request)自动成为志愿者**
 
